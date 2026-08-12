@@ -1,12 +1,9 @@
 <div align="center">
 
- <img  height="149" alt="tumblr_fc1fad0c80a3b01be5e429e221a61171_789a5ede_540-removebg-preview" src="https://github.com/user-attachments/assets/8d555010-d55d-4864-8a18-366bf389e091" />
-
 
  
-$\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=NocturnalNatis&style=plastic&label=Brotherhood++&color=401217)$\color{#910611}{\textsf{♱}}$
+$\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=NocturnalNatis&style=plastic&label=𝔎𝔢𝔶𝔟𝔩𝔞𝔡𝔢 𝔪𝔞𝔰𝔱𝔢𝔯𝔰++&color=2185ff)$\color{#910611}{\textsf{♱}}$
 
-<img height="302" alt="ezgif-3960e4acdef798c6" src="https://github.com/user-attachments/assets/d4c54a4b-437f-4fe9-b778-6a53f79f448e" />
 
 
 
@@ -46,7 +43,6 @@ $${\color{#910611}⚔𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆⚔}$$
 
 
 
-https://github.com/user-attachments/assets/213763f6-b2ca-4a48-8c69-9668e21b5fa9
 
 
 
