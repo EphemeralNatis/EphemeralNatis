@@ -23,7 +23,7 @@ $${\color{#910611}♱𝔄𝔟𝔬𝔲𝔱♱}$$
  $${\color{#3f4866}♱𝕸𝖆𝖎𝖓 𝕴𝖓𝖙𝖊𝖗𝖊𝖘𝖙𝖘♱}$$ 
 
  
-<sub> As of right now; NieR Automata,Deadrising & Castlevania Lords Of Shadow </sub>
+<sub> As of right now; NieR Replicant,Kingdom Hearts B.B.S </sub>
 
 
 
