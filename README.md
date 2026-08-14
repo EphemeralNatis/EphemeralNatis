@@ -19,7 +19,7 @@ $${\color{#2185ff}♱𝔄𝔟𝔬𝔲𝔱♱}$$
  $${\color{#3f4866}♱𝕸𝖆𝖎𝖓 𝕴𝖓𝖙𝖊𝖗𝖊𝖘𝖙𝖘♱}$$ 
 
  
-<sub> As of right now; NieR Replicant,Kingdom Hearts B.B.S </sub>
+<sub> As of right now; NieR Replicant,Kingdom Hearts B.B.S, Final Fantasy XIII</sub>
 
 
 
