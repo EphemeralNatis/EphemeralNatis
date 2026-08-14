@@ -1,14 +1,14 @@
 <div align="center">
 
-ㅤ![](https://komarev.com/ghpvc/?username=NosferatuNatis&label=𝔎𝔢𝔶𝔟𝔩𝔞𝔡𝔢𝔪𝔞𝔰𝔱𝔢𝔯𝔰+++++&color=2185ff)
+ㅤ![](https://komarev.com/ghpvc/?username=NosferatuNatis&label=𝕬𝖓𝖌𝖊𝖑𝖘+++++&color=ffd1ea)
 
-<img width="600" height="338" alt="2ae629c5c95336b4ec790fdbf30d5fe4 (1)" src="https://github.com/user-attachments/assets/86ca111a-376c-446c-a597-7783e9e79390" />
+<img width="500" height="250" alt="227eb7437a470c6c540a214fa694a81f" src="https://github.com/user-attachments/assets/72f58f5c-c3f2-4a5b-aa98-1a4a5f391158" />
 
 
 
 <sub><img  height="57" alt="1c7da5941d60c55688db54e103535c70-removebg-preview" src="https://github.com/user-attachments/assets/24bacaaa-1247-457b-adfa-278ce3fd9a04" />
  
-$${\color{#2185ff}♱𝔄𝔟𝔬𝔲𝔱♱}$$ 
+$${\color{#eb8fb8}♱𝔄𝔟𝔬𝔲𝔱♱}$$ 
 
 
 <sub>Hi I go by Nat/Natis I'm into a variety of games{Like a lot...} I also enjoy listening to my friends speak about their interests feel free to interact if we happen to share the same interests Ex: Final Fantasy, Resident Evil, Yakuza, Metal Gear Solid,ECT...[more listed on Strawpage] Please don't be afraid to interact with me at all I'm pretty chill most of the time!Though I am not the best when it comes to talking much to people & tend to be to myself with some things. I'm a self-taught artist as a hobby Feel free to visit [My Art Store](https://acggoods.com/store/CrystalNatis) It has some Resident Evil,Final Fantasy & Kingdom Hearts merch as of right now other than that I play a lot of video games as shown on [my steam profile](https://steamcommunity.com/id/NatisProfile/) & once in a blue moon play my electric guitar.My favorite Music is anything Gothic, Rock & V系 but I listen to other things too. </sub> 
@@ -41,7 +41,10 @@ $${\color{#910611}⚔𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆⚔}$$
 
 
 
-https://github.com/user-attachments/assets/55912a5e-dc43-4849-a17f-4e3d5a3e5093
+
+
+https://github.com/user-attachments/assets/4de200d7-0379-49d2-985f-00925a4ec64a
+
 
 
 
