@@ -22,7 +22,7 @@ $${\color{#eb8fb8}♱𝔄𝔟𝔬𝔲𝔱♱}$$
 $${\color{#910611}⚔𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆⚔}$$
 
 
-<sub>  Adult friends are more preferable, Basic Criteria[Anti-LGBTQIA, racist, creeps, Posers; Not so much with games but with things like Goth or Emo;They are movements...] Dni Fandoms; Hoyoverse, Okegom, Hazbin Hotel/Helluva Boss, The Amazing Digital Circus,Boyfriend to Death, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest, Roscest, redfieldcest [Any other incest/illegal/Proships | I am one to speak up about something so if I don't like you it will be heavily apparent; If I unfriend you or block you it is likely to have a good reason, I have things I don't stand for and I am very picky with who I keep in my circle of friends so if I notice something that I don't like, you will likely be unfriended; most likely due to any of the things listed above.] </sub> 
+<sub>  Adult friends are more preferable, Basic Criteria[Anti-LGBTQIA, racist, creeps, Posers; Not so much with games but with things like Goth or Emo;They are movements...] Dni Fandoms; Hoyoverse, Okegom, Hazbin Hotel/Helluva Boss, The Amazing Digital Circus,DBD, Boyfriend to Death, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest, Roscest, redfieldcest [Any other incest/illegal/Proships | I am one to speak up about something so if I don't like you it will be heavily apparent; If I unfriend you or block you it is likely to have a good reason, I have things I don't stand for and I am very picky with who I keep in my circle of friends so if I notice something that I don't like, you will likely be unfriended; most likely due to any of the things listed above.] </sub> 
 
 
  
