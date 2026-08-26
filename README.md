@@ -41,7 +41,7 @@
 
 <sub>Basic DNI Criteria</sub> **Ex;** <sub>Creeps,Proship,Anti-LGBTQIA</sub>
 
-***DNI Fandoms;*** *Okegom, Hoyo-Verse, Boyfriend to Death, Vivziepop fans, En-Stars, My Hero,coffin of andy & leyley; Anyone who ships Spardacest,Roscest,Redfieldcest;Anything Illegal/proship.*
+***DNI Fandoms;*** *Okegom, Hoyo-Verse, Boyfriend to Death,The Amazing Digital Circus, Vivziepop fans, En-Stars, My Hero,coffin of andy & leyley; Anyone who ships Spardacest,Roscest,Redfieldcest;Anything Illegal/proship.*
 
 
 <sub>You will likely know if I don't like you as I make things very clear.If I happen to unfriend you it is likely one of those reasons above or I happen to not vibe with you / we didn't talk much &/or I Don't remember you.</sub>
