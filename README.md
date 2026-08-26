@@ -38,6 +38,7 @@
  
 <img align="left" src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExNnBqZDB4YXJ3dWY1MjRuNGgzOHF2MXo1Nnpydm9uMm9sbG85aGkxeSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JxQjpMDznlTZ683zbb/giphy.gif" width="280" alt="Lightning"/>
 
+<sub>I heavily would prefer friends that are Adults, thank you for understanding.</sub>
 
 <sub>Basic DNI Criteria</sub> **Ex;** <sub>Creeps,Proship,Anti-LGBTQIA</sub>
 
@@ -46,6 +47,8 @@
 
 <sub>You will likely know if I don't like you as I make things very clear.If I happen to unfriend you it is likely one of those reasons above or I happen to not vibe with you / we didn't talk much &/or I Don't remember you.</sub>
 
+
+<sub> Feel free to take inspiration off my ponies just as long as it isn't outright copying.</sub>
 
 <br clear="left"/>
 
