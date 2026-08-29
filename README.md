@@ -17,7 +17,7 @@
 <img align="right" src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExaW94amxxdWV5eWFhdW54dXBjZHQyNXdiN2k3aTdkbW1tMWV3MWs4eSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/zBsKQtMfGKusdbNdEE/giphy.gif" width="280" alt="Lightning"/>
 
 **Natis/Nat**, I'm a fan of many video games & Animes if you happen to share the same interests as me don't be afraid to interact with me.**Ex;** *Final Fantasy,Yakuza,Devil May Cry,Resident Evil,Drakenier,Kingdom Hearts,Metal Gear Solid* **Other;** *Attack On Titan[my first anime & I've been there since the start.], Death Note, Evangelion, Vampire Hunter D,The Summer Hikaru Died.* 
-***My*** hobbies include Gaming, Art & Playing Electric Guitar;my music taste is between Goth,V系 & Rock/Nurock, I have a shop that has some FF,RE & KH merch in it if those of you are interested;<sub>[My Shop](https://acggoods.com/store/CrystalNatis) </sub> 
+***My*** hobbies include Gaming, Art & Playing Electric Guitar;my music taste is between Goth,V系 & Rock/Nurock, I have a shop that has some FF,RE & KH merch in it if those of you are interested;<sub>[My Shop](https://acggoods.com/store/CrystalNatis) any kind of support is helpful & means a lot to me</sub> 
 
 <sub>More Can be found in my strawpage</sub>
 
